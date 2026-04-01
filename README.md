@@ -1,2 +1,0 @@
-# auladoprofessor
-quero feriado
